@@ -1,1 +1,1 @@
-This homework is not fully completed yet.
+This homework is now updated and complete
